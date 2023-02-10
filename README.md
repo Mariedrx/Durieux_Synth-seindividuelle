@@ -1,1 +1,0 @@
-# Durieux_Syntheseindiv
